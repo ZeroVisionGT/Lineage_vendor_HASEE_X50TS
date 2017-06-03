@@ -1,0 +1,1 @@
+# Lineage_vendor_HASEE_X50TS
